@@ -1,1 +1,0 @@
-![sata andagi](image.png)
